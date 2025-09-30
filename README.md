@@ -1,4 +1,7 @@
 # Dalai-Lama-dilemma-what-the-succession-battle-will-mean-for-Tibet
+
+https://sphinx.acast.com/p/open/s/633ebf6dfc7f5a0012acdc97/e/68c98ca1fdcaaa426298e22e/media.mp3?tk=eyJ1aWQiOiJDQUFTIiwidGsiOiJlT3l4Q2hjciIsImFkcyI6ZmFsc2UsInNwb25zIjpmYWxzZSwidCI6IjJlODRlMDg2LTAyZTUtNGM4MS1iZjQwLTU4NzlkZWU5YjlmZCIsImluIjoiaHR0cHM6Ly9hdGVhbS1wZWdhc3VzLXB1YmxpYy1idWNrZXQtc3RhZ2luZy5zMy1ldS13ZXN0LTEuYW1hem9uYXdzLmNvbS9hdWRpby9pbnRyb19lbXB0eS5tcDMiLCJvdXQiOiJodHRwczovL2F0ZWFtLXBlZ2FzdXMtcHVibGljLWJ1Y2tldC1zdGFnaW5nLnMzLWV1LXdlc3QtMS5hbWF6b25hd3MuY29tL2F1ZGlvL291dHJvX2VtcHR5Lm1wMyIsInN0YXR1cyI6InByaXZhdGUifQ==&sig=O-xsNOywMJdreIWFkYWvi3M1x8I_ovo3H2Cbvl0ifLA
+
 Dalai Lama dilemma: what the succession battle will mean for Tibet
 Our weekly podcast on China. This week, what will happen when the spiritual leader of Tibet dies?
 This summer, the Dalai Lama chose his 90th birthday celebrations to confirm he would reincarnate when he dies. But China says it alone has the right to name the next spiritual leader of Tibet. How could the fight for the next Dalai Lama shape the lives of Tibetans and the future of the Tibetan movement?
